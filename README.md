@@ -16,6 +16,7 @@ Collections de livres de spéléologie
 - [Fontaine L'évêque, Verdon, France 1970](https://vimeo.com/226438253): (Français) _Fontaine L'évêque_ Film sur les plongeées et les travaux pour préparer la construction du barrage de Sainte-Croix.
 - [Margua 2007](https://m.youtube.com/watch?v=PFMnRi4tAzw&pp=ygUWbGEgbHVuZ2Egbm90dGUgZ29iZXR0aQ%3D%3D): (Italien) Longa Notta, Andrea Gobetti. Film sur une opération de secours au Marguareis.
 - [Mexique 2009](https://vimeo.com/266912525): (Français) _Attention: traversée de gouffre mexicain!_ Film sur une expédition internationale dans les montagnes de la Sierra
+- [Patagonie, Argentine, 2009](https://www.youtube.com/watch?v=4t-WUgI91zU): (Français) _L'énigme de la grotte des baleines | Centre-terre_ Film sur l'expédition en Patagonie de 2009
 - [Papouasie 2012](https://m.youtube.com/watch?v=LlKnWohGp2c&pp=ygUQU3BlbGVvIHBhcG91YXNpZQ%3D%3D): (Français) film de l'expedition de 2012.
 - [Ariège, France 2021](https://m.youtube.com/watch?v=GUjaezvYIRc): (Français) _40 jours en dehors du temps_ Film de l'expérience unique au monde Deep Time
 - [Marguareis, Italie 2022](https://m.youtube.com/watch?v=QtbFm0fJaw8)
