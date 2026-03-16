@@ -29,3 +29,5 @@ Collections de livres de spéléologie
 - [Mexique](https://m.youtube.com/watch?v=F06KFAe4g2c&pp=ygULQXJ0ZSBzcGVsZW8%3D): (Français) _Naica la Grotte Aux Cristaux Geants (ARTE) | ARTE_
 - [Mexique 2022](https://youtu.be/Yl4Wb4G7TOw?feature=shared) (Anglais) _Explorer The Deepest Cave Full Movie | National Geographic_
 - [Chartreuse, France 2024](https://www.youtube.com/watch?v=YvvpiVbUJuE) (Français) _De la Pulpite Au Glaz par le Puits de L'Erreur 255 | Un film de C'est Pas FFS_ Film sur les explorations de la dent de Crolles par le Collectif c'est pas FFS
+- [Palawan, Phillipines 2025](https://youtu.be/y9jJHCsSAak?si=045WxFEj9wEDJkt1) (Français) _Palawan, la rivière souterraine la plus longue du monde | ARTE_ Documentaire sur l'étude de la rivière Palawan dans le Parc de Puerto Princessa
+- [China 2025](https://youtu.be/_U4wFyCqjXM?si=wjqpbw2FkOmWsXLy) (Anglais) Giant Caves of China: Formed by Time and Shaped by Earth | Underground Worlds | Documentary Film sur les plus grandes salles sous-terraines en Chine 
